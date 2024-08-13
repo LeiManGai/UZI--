@@ -1,2 +1,0 @@
-# UZI--
-rookie newbie
